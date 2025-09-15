@@ -8,7 +8,7 @@
 ## ────── ୨୧ ───────
 ㅤㅤㅤㅤㅤㅤㅤᛝ Name: Kujou Ev
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤᛝ Aka: Jou! ⋆.˚ ☾⭒.˚
-ᛝ Pronouns: Kujou / Them / Any
+ㅤㅤㅤㅤㅤㅤㅤᛝ Pronouns: Kujou / Them / Any
 ㅤㅤㅤㅤᛝ DemiGender! Aromantic! 
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 ( Visit Jou's main strawpage for better info about them!! ) 
