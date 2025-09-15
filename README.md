@@ -12,3 +12,4 @@
 ㅤㅤㅤㅤᛝ DemiGender! Aromantic! 
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 ( Visit Jou's main strawpage for better info about them!! ) 
+![5f574c2e45f8e03567d183e791d29688](https://github.com/user-attachments/assets/92091def-7d32-4628-bdef-346d8b750289)
