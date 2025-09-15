@@ -17,6 +17,8 @@
 🌟 ₊ᰔ ⋮ DNIUF - Do not interact with Jou unless their friends! It just mean they don't feel like interacting with randoms / strangers. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 🌕 ₊ᰔ ⋮ DNIUC - Do not interact unless close, Jou only will interact with their friend group! And it's also mean Jou is tired / upset and don't feel like interacting with anyone but their close friends.ㅤㅤㅤ
 🌙 ₊ᰔ ⋮ IWC - Interact with cautious. It's mean that Jou is not ready for interaction, and might be will ignore or not respond. (can be both to strangers and friends) 
+### ㅤㅤ· · ─ ·𖥸· ─ · ·
+`` Take a nice nap underneath a tree shade ``
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 ( Visit Jou's main strawpage for better info about them!! ) 
 ![5f574c2e45f8e03567d183e791d29688](https://github.com/user-attachments/assets/92091def-7d32-4628-bdef-346d8b750289)
