@@ -15,7 +15,7 @@
 💫 ₊ᰔ ⋮ DNC - Do not copy Jou's ponies, especially their ocs. Inspire is perfectly fine but pls ask Jou first!ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 🪐 ₊ᰔ ⋮ C+H - Jou love cuddles. If they are alone, feel free to cuddle them! As long as their pony name have C+H in it though!! 
 🌟 ₊ᰔ ⋮ DNIUF - Do not interact with Jou unless their friends! It just mean they don't feel like interacting with randoms / strangers. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-🌕 ₊ᰔ ⋮ DNIUC - Do not interact unless close, Jou only will interact with their friend group! And it's also mean Jou is tired / upset and don't feel like interacting with anyone but their close friends.
+🌕 ₊ᰔ ⋮ DNIUC - Do not interact unless close, Jou only will interact with their friend group! And it's also mean Jou is tired / upset and don't feel like interacting with anyone but their close friends.ㅤㅤㅤ
 🌙 ₊ᰔ ⋮ IWC - Interact with cautious. It's mean that Jou is not ready for interaction, and might be will ignore or not respond. (can be both to strangers and friends) 
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 ( Visit Jou's main strawpage for better info about them!! ) 
