@@ -11,12 +11,12 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᛝ Pronouns: Kujou / Them / Any
 ㅤㅤㅤㅤᛝ DemiGender! Aromantic! 
 ## ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ 🪐˖.𖥔 ݁ ˖·
-✨ ₊ᰔ ⋮ DNCV - Do not cover Jou's pony, unless you are Jou's friends or Jou know you!/
-💫 ₊ᰔ ⋮ DNC - Do not copy Jou's ponies, especially their ocs. Inspire is perfectly fine but pls ask Jou first!/
-🪐 ₊ᰔ ⋮ C+H - Jou love cuddles. If they are alone, feel free to cuddle them! As long as their pony name have C+H in it though!!/
-🌟 ₊ᰔ ⋮ DNIUF - Do not interact with Jou unless their friends! It just mean they don't feel like interacting with randoms / strangers./ㅤ
-🌕 ₊ᰔ ⋮ DNIUC - Do not interact unless close, Jou only will interact with their friend group! And it's also mean Jou is tired / upset and don't feel like interacting with anyone but their close friends./
-🌙 ₊ᰔ ⋮ IWC - Interact with cautious. It's mean that Jou is not ready for interaction, and might be will ignore or not respond. (can be both to strangers and friends) 
+✨ ₊ᰔ ⋮ DNCV - Do not cover Jou's pony, unless you are Jou's friends or Jou know you!\
+💫 ₊ᰔ ⋮ DNC - Do not copy Jou's ponies, especially their ocs. Inspire is perfectly fine but pls ask Jou first!\
+🪐 ₊ᰔ ⋮ C+H - Jou love cuddles. If they are alone, feel free to cuddle them! As long as their pony name have C+H in it though!!\
+🌟 ₊ᰔ ⋮ DNIUF - Do not interact with Jou unless their friends! It just mean they don't feel like interacting with randoms / strangers.\
+🌕 ₊ᰔ ⋮ DNIUC - Do not interact unless close, Jou only will interact with their friend group! And it's also mean Jou is tired / upset and don't feel like interacting with anyone but their close friends.\
+🌙 ₊ᰔ ⋮ IWC - Interact with cautious. It's mean that Jou is not ready for interaction, and might be will ignore or not respond. (can be both to strangers and friends)\
 ### ㅤㅤ· · ─ ·𖥸· ─ · ·
 `` Take a nice nap underneath a tree shade ``
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
