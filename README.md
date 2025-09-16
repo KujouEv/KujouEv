@@ -22,3 +22,6 @@
 ## ㅤㅤﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 ( Visit Jou's main strawpage for better info about them!! ) 
 ![5f574c2e45f8e03567d183e791d29688](https://github.com/user-attachments/assets/92091def-7d32-4628-bdef-346d8b750289)
+# BYI 𓍊𓋼𓍊𖡼.𖤣𖥧𖡼.𖤣𖥧𓋼𓍊𓋼
+🥀 ❀˖°¦ Be mindful! Jou can get overwhelmed easily and might will ignore you! Also, whisper to interact unless friends! Jou can be blind sometimes!\
+🌸 ❀˖°¦ Jou might be so dry at first but if you keep coming to Jou and interact with them, they might will open up!! 
