@@ -25,6 +25,7 @@
 # BYI 𓍊𓋼𓍊𖡼.𖤣𖥧𖡼.𖤣𖥧𓋼𓍊𓋼 And extras!! 
 🥀 ❀˖°¦ Be mindful! Jou can get overwhelmed easily and might will ignore you! Also, whisper to interact unless friends! Jou can be blind sometimes!\
 🌸 ❀˖°¦ Jou might be so dry or awkward at first but if you keep coming to Jou and interact with them, they might will open up!!\
+🍁 ❀˖°¦ Do not use nickname for Jou without asking first! Jou get _**very**_ uncomfortable with it.\
 🌺 ❀˖°¦ If Jou get too comfortable, they might will yap so much, and be annoying. So please tell Jou if you feel annoyed by something!\
 ☘️ ❀˖°¦ Jou can be quite dense sometimes, so don't mind them. And you don't have to bother spell things out for them (pls do, or Jou will never get what you say or do)\
 🌻 ❀˖°¦ 
