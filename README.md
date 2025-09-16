@@ -28,4 +28,4 @@
 🍁 ❀˖°¦ Do not use nickname for Jou without asking first! Jou get _**very**_ uncomfortable with it.\
 🌺 ❀˖°¦ If Jou get too comfortable, they might will yap so much, and be annoying. So please tell Jou if you feel annoyed by something!\
 ☘️ ❀˖°¦ Jou can be quite dense sometimes, so don't mind them. And you don't have to bother spell things out for them (pls do, or Jou will never get what you say or do)\
-🌻 ❀˖°¦ 
+🌻 ❀˖°¦ PLEASE and Jou will said it again, **PLEASE** interact with **EXTRA** cautious if you are below 14 and above 20!! Jou feel extremely uncomfortable with knowing that they are interacting with someone that isn't around their age!
