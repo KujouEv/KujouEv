@@ -21,8 +21,9 @@
 ``` Take a nice nap underneath a tree shade ```
 ( Visit Jou's main strawpage for better info about them!! ) 
 ![5f574c2e45f8e03567d183e791d29688](https://github.com/user-attachments/assets/92091def-7d32-4628-bdef-346d8b750289)
-# BYI 𓍊𓋼𓍊𖡼.𖤣𖥧𖡼.𖤣𖥧𓋼𓍊𓋼
+# BYI 𓍊𓋼𓍊𖡼.𖤣𖥧𖡼.𖤣𖥧𓋼𓍊𓋼 And extras!! 
 🥀 ❀˖°¦ Be mindful! Jou can get overwhelmed easily and might will ignore you! Also, whisper to interact unless friends! Jou can be blind sometimes!\
 🌸 ❀˖°¦ Jou might be so dry or awkward at first but if you keep coming to Jou and interact with them, they might will open up!!\
 🌺 ❀˖°¦ If Jou get too comfortable, they might will yap so much, and be annoying. So please tell Jou if you feel annoyed by something!\
-Jou can be quite dense sometimes, so don't mind them. And you don't have to bother spell things out for them (pls do, or Jou will never get what you say or do)\
+☘️ ❀˖°¦ Jou can be quite dense sometimes, so don't mind them. And you don't have to bother spell things out for them (pls do, or Jou will never get what you say or do)\
+🌻 ❀˖°¦ 
