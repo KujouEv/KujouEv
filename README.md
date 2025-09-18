@@ -1,6 +1,6 @@
 ## ·────── ୨୧ ───────·
 <img width="1500" height="500" alt="Untitled99_20250915093143" src="https://github.com/user-attachments/assets/a005202f-ee65-4366-af3b-38cae43025c8" />
-⋆.˚ ☾⭒.˚ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+⋆.˚ ☾⭒![](https://komarev.com/ghpvc/?username=KujouEv&color=ff00b0)
 ᛝ ⌞ Let Jou introduce themselves ⌝
 
 ## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
