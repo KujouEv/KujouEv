@@ -2,8 +2,8 @@
 <img width="1500" height="500" alt="Untitled99_20250915093143" src="https://github.com/user-attachments/assets/a005202f-ee65-4366-af3b-38cae43025c8" />
 -`♡´-
 
-_ᛝ ⌞ Let Jou introduce themselves ⌝_
-
+_ᛝ ⌞ Let Jou introduce themselves ⌝_\
+``Current status: Overwhelmed. Always whisper, public chat mostly disabled.``
 ## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
 ⚠︎ A Third Person Speaker! ⚠︎\
 ⚠︎ (this is work in progress) ⚠︎
