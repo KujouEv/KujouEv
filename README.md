@@ -3,7 +3,7 @@
 -`♡´-
 
 _ᛝ ⌞ Let Jou introduce themselves ⌝_\
-``Current status: Overwhelmed. Always whisper, public chat mostly disabled.``
+``Current status: Comfortable. Hvy c+H but might won't respond to whisper unless friends.``
 ## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
 ⚠︎ A Third Person Speaker! ⚠︎\
 ⚠︎ (this is work in progress) ⚠︎
