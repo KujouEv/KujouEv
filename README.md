@@ -9,7 +9,7 @@ _ᛝ ⌞ Let Jou introduce themselves ⌝_\
 ⚠︎ (this is work in progress) ⚠︎
 ## ·────── ୨୧ ───────·
 ᛝ Name: Kujou Ev\
-ᛝ Aka: Jou! ⋆.˚ ☾⭒.˚\
+ᛝ Aka: Jou, Joy, Space, etc.\
 ᛝ Pronouns: Kujou / Them / Any\
 ᛝ DemiGender! Aromantic!
 ## ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ 🪐˖.𖥔 ݁ ˖·
