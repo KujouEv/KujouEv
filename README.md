@@ -3,7 +3,8 @@
 -`♡´-
 
 _ᛝ ⌞ Let Jou introduce themselves ⌝_\
-``Current status: a bit Anxious. Interact with extra cautious, alright?...``
+
+	Current status: a bit Anxious. Interact with extra cautious, alright?...
 ## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
 ⚠︎ A Third Person Speaker! ⚠︎\
 ⚠︎ (this is work in progress) ⚠︎
