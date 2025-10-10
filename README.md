@@ -8,8 +8,8 @@ _ᛝ ⌞ Let Jou introduce themselves ⌝_\
 ⚠︎ A Third Person Speaker! ⚠︎\
 ⚠︎ (this is work in progress) ⚠︎
 ## ·────── ୨୧ ───────·
-ᛝ Name: Kujou Ev\
-ᛝ Aka: Jou, Joy, Space, etc.\
+ᛝ Name: Kujou Ev or Space\
+ᛝ Aka: Jou, Joy, etc.\
 ᛝ Pronouns: Kujou / Them / Any\
 ᛝ DemiGender! Aromantic!
 ## ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ 🪐˖.𖥔 ݁ ˖·
