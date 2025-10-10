@@ -10,10 +10,15 @@ _ᛝ ⌞ Let Jou introduce themselves ⌝_\
 ## ·────── ୨୧ ───────·
 ᛝ Name: Kujou Ev or Space\
 ᛝ Aka: Jou, Joy, etc.\
-ᛝ Pronouns: Kujou / Them / Any\
+ᛝ Pronouns: Kujou / Space / Them / Any\
 ᛝ DemiGender! Aromantic!
 ## ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ 🪐˖.𖥔 ݁ ˖·
-{hi} 
+₊ᰔ ⋮ Space is selective mutism. Diagonesed with severe anxiety disorder! They will only talk when friends is around, so please interact with care if they are alone!\
+₊ᰔ ⋮ Jou will switch name between Jou or Space when they are talking! Please don't get confused by it.\
+₊ᰔ ⋮ Space tend to get overwhelmed easily, especially if in crowd.\
+₊ᰔ ⋮ Do not cover Space's pony fully, space feel uncomfortable when they don't see their pony pixel.. Unless Finn. Finn allow to cover Space anytime.\
+₊ᰔ ⋮ Please! Please cuddle Jou! Jou love cuddling. They will have C+H in their ponies name most of the times.\
+₊ᰔ ⋮ whisper to int please! Space will usually miss people bubbles.\
 # · · ─ ·𖥸· ─ · ·
 ``` Take a nice nap underneath a tree shade ```\
 ( Visit Jou's main strawpage for better info about them!! ) 
