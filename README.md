@@ -18,7 +18,7 @@ _ᛝ ⌞ Let Jou introduce themselves ⌝_\
 ₊ᰔ ⋮ Space tend to get overwhelmed easily, especially if in crowd.\
 ₊ᰔ ⋮ Do not cover Space's pony fully, space feel uncomfortable when they don't see their pony pixel.. Unless Finn. Finn allow to cover Space anytime.\
 ₊ᰔ ⋮ Please! Please cuddle Jou! Jou love cuddling. They will have C+H in their ponies name most of the times.\
-₊ᰔ ⋮ whisper to int please! Space will usually miss people bubbles.\
+₊ᰔ ⋮ whisper to int please! Space will usually miss people bubbles.
 # · · ─ ·𖥸· ─ · ·
 ``` Take a nice nap underneath a tree shade ```\
 ( Visit Jou's main strawpage for better info about them!! ) 
