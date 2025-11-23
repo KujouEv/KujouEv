@@ -6,7 +6,7 @@ _ᛝ ⌞ Let Jou introduce themselves ⌝_\
 
 	Current status: Overwhelmed. Interact with extra cautious, alright?...
 ## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
-<p style="text-align:center;"> A Third Person Speaker! </p>
+⚠︎ A Third Person Speaker! ⚠︎
 
 ⚠︎ (this is work in progress) ⚠︎
 ## ·────── ୨୧ ───────·
