@@ -4,8 +4,8 @@
 
 ㅤㅤㅤㅤ⚠︎ A Third Person Speaker! ⚠︎
 
-󠁪ㅤㅤㅤㅤㅤ🎵BoomSpace💥\
-ㅤ`(All arts drawn by Space!!)`
+󠁪ㅤㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥\
+ㅤㅤㅤ`(All arts drawn by Space!!)`
 
 ### ㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
 🎵Name : Kujou or Space!\
