@@ -2,7 +2,8 @@
 
 >"Any type of music you like, Subspace?"`
 
-ㅤㅤㅤㅤ⚠︎ A Third Person Speaker! ⚠︎
+ㅤㅤㅤㅤ
+⚠︎ A Third Person Speaker! ⚠︎
 
 󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥\
 ㅤㅤㅤ`(All arts drawn by Space!!)`
@@ -34,7 +35,7 @@
 
 ### ㅤㅤㅤㅤㅤㅤㅤ◣▲◢ 
 
-ㅤㅤㅤㅤ```WORK IN PROGRESS!!```
+ㅤㅤㅤㅤㅤ```WORK IN PROGRESS!!```
 
 <img width="1500" height="500" alt="Untitled130_20251124051214" src="https://github.com/user-attachments/assets/6bb3216f-dcab-4f29-a725-65a88ae550a9" />
 
