@@ -1,27 +1,37 @@
-## ·────── ୨୧ ───────·
-<img width="1500" height="500" alt="Untitled99_20250915093143" src="https://github.com/user-attachments/assets/a005202f-ee65-4366-af3b-38cae43025c8" />
--`♡´-
+<img width="1500" height="500" alt="Untitled130_20251124051221" src="https://github.com/user-attachments/assets/07525136-cb28-4292-836f-9a94f780e58d" />
 
-_ᛝ ⌞ Let Jou introduce themselves ⌝_\
+>"Any type of music you like, Subspace?"`
 
-	Current status: Overwhelmed. Interact with extra cautious, alright?...
-## ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌𐔌
-⚠︎ A Third Person Speaker! ⚠︎
+ㅤ⚠︎ A Third Person Speaker! ⚠︎
 
-⚠︎ (this is work in progress) ⚠︎
-## ·────── ୨୧ ───────·
-ᛝ Name: Kujou Ev or Space\
-ᛝ Aka: Jou, Joy, etc.\
-ᛝ Pronouns: Kujou / Space / Them / Any\
-ᛝ DemiGender! Aromantic!
-## ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ 🪐˖.𖥔 ݁ ˖·
-₊ᰔ ⋮ Space is selective mutism. Diagonesed with severe anxiety disorder! They will only talk when friends is around, so please interact with care if they are alone!\
-₊ᰔ ⋮ Jou will switch name between Jou or Space when they are talking! Please don't get confused by it.\
-₊ᰔ ⋮ Space tend to get overwhelmed easily, especially if in crowd.\
-₊ᰔ ⋮ Do not cover Space's pony fully, space feel uncomfortable when they don't see their pony pixel.. Unless Finn. Finn allow to cover Space anytime.\
-₊ᰔ ⋮ Please! Please cuddle Jou! Jou love cuddling. They will have C+H in their ponies name most of the times.\
-₊ᰔ ⋮ whisper to int please! Space will usually miss people bubbles.
-# · · ─ ·𖥸· ─ · ·
-``` Take a nice nap underneath a tree shade ```\
-( Visit Jou's main strawpage for better info about them!! ) 
-![5f574c2e45f8e03567d183e791d29688](https://github.com/user-attachments/assets/92091def-7d32-4628-bdef-346d8b750289)
+󠁪ㅤㅤㅤㅤㅤ🎵BoomSpace💥\
+ㅤ`(All arts drawn by Space!!)`
+
+### ㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
+🎵Name : Kujou or Space!\
+🎶Pronouns : They [Prefer] / Any! 
+🎼Age : 16! [27/1]\
+🎸Demigender! [Agender + Bigender]\
+🎹Aromantic + Omnisexual!
+
+## ㅤㅤ၊၊||၊⋆.˚ ♪ ♫ ♬ ˚.⋆၊၊||၊
+<img width="1500" height="500" alt="Untitled130_20251124051218" src="https://github.com/user-attachments/assets/746c9cc2-8661-4c13-b33b-6927ef940136" />
+
+> "The screams of my victims!"
+
+## ㅤㅤ・┆✦ʚ♡ɞ✦ ┆・
+ㅤㅤ⚠︎ Before you interact ⚠︎
+
+ 🌕 : Space have selective mutism. Space might ignore you on purpose. But that not because you bother them or anything.. It's because they don't know what to say and feeling nervous or anxious. [Space is diagnosed with Severe Anxiety]\
+🌖 : Jou will often switch names between Space or Jou sometimes.\
+🌗 : Always interact with catious! Especially if Space is alone.\
+🌘 : Do not cover Jou's pony! Jou get very trigger/uncomfortable when they can't see their pony pixel. [friends allowed to cover Space, not fully though.. Unless Finn.]\
+🌑 : C+H is welcome anytime unless their name doesn't say so!
+
+### ㅤㅤㅤㅤㅤ◣▲◢ 
+
+```WORK IN PROGRESS!!```
+
+<img width="1500" height="500" alt="Untitled130_20251124051214" src="https://github.com/user-attachments/assets/6bb3216f-dcab-4f29-a725-65a88ae550a9" />
+
+> 📻 "Interesting..." 🧪 
