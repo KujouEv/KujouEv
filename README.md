@@ -2,7 +2,7 @@
 
 >"Any type of music you like, Subspace?"`
 
-ㅤㅤㅤ⚠︎ A Third Person Speaker! ⚠︎
+ㅤㅤㅤㅤ⚠︎ A Third Person Speaker! ⚠︎
 
 󠁪ㅤㅤㅤㅤㅤ🎵BoomSpace💥\
 ㅤ`(All arts drawn by Space!!)`
