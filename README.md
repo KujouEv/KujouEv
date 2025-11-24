@@ -7,7 +7,7 @@
 󠁪ㅤㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥\
 ㅤㅤㅤㅤ`(All arts drawn by Space!!)`
 
-### ㅤㅤㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
+### ㅤㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
 🎵Name : Kujou or Space!\
 🎶Pronouns : They [Prefer] / Any! 
 🎼Age : 16! [27/1]\
