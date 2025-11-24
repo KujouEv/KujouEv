@@ -9,7 +9,7 @@
 
 ### ㅤㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
 🎵Name : Kujou or Space!\
-🎶Pronouns : They [Prefer] / Any! 
+🎶Pronouns : They [Prefer] / Any!\ 
 🎼Age : 16! [27/1]\
 🎸Demigender! [Agender + Bigender]\
 🎹Aromantic + Omnisexual!
