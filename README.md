@@ -28,7 +28,7 @@ ${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
 
 ${\textsf{\color{pink}⠀⠀⠀⠀⠀⠀⠀⠀⠀୧ ‧₊˚ LINKS ⋅ ☆ }}$
 
-[Atabook](https://kujou.atabook.org/) ⸝⸝ [Strawpage #1](kujouev.straw.page) ⸝⸝ [rentry](https://rentry.co/SpaceI) ⸝⸝
+[Atabook](https://kujou.atabook.org/) ⸝⸝ [Strawpage #1](kujouev.straw.page) ⸝⸝ [rentry](https://rentry.co/SpaceI) ⸝⸝ [Pronouns](https://en.pronouns.page/@kujouev)
 ### ㅤㅤㅤㅤㅤㅤㅤ◣▲◢ 
 
 
