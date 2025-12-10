@@ -4,7 +4,8 @@
 
 ${\textsf{\color{red}ㅤ⠀⠀⚠︎ A Third Person Speaker! ⚠︎ }}$
 
-${\textsf{\color{red}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥\ }}$
+${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
+
 ㅤㅤㅤ`(All arts drawn by Space!!)`
 
 ### ㅤㅤㅤㅤ၊၊||၊⋆.˚✮🎧✮˚.⋆၊၊||၊
