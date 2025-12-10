@@ -25,6 +25,9 @@ ${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
 > "The screams of my victims!"
 
 ## ㅤㅤㅤ・┆✦ʚ♡ɞ✦ ┆・
+
+### ㅤㅤㅤㅤㅤㅤㅤ◣▲◢ 
+
 ㅤㅤㅤㅤ⚠︎ Before you interact ⚠︎
 
 🌕 : Space have selective mutism. Space might ignore you on purpose. But that not because you bother them or anything.. It's because they don't know what to say and feeling nervous or anxious. [Space is diagnosed with Severe Anxiety]\
@@ -32,10 +35,6 @@ ${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
 🌗 : Always interact with catious! Especially if Space is alone.\
 🌘 : Do not cover Jou's pony! Jou get very trigger/uncomfortable when they can't see their pony pixel. [friends allowed to cover Space, not fully though.. Unless Finn.]\
 🌑 : C+H is welcome anytime unless their name doesn't say so!
-
-### ㅤㅤㅤㅤㅤㅤㅤ◣▲◢ 
-
-ㅤㅤㅤㅤㅤ```WORK IN PROGRESS!!```
 
 <img width="1500" height="500" alt="Untitled130_20251124051214" src="https://github.com/user-attachments/assets/6bb3216f-dcab-4f29-a725-65a88ae550a9" />
 
