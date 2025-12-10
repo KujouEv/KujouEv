@@ -28,7 +28,7 @@ ${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
 
 ### ㅤㅤㅤㅤㅤㅤㅤ◣▲◢ 
 
-ㅤㅤㅤㅤ⚠︎ Before you interact ⚠︎
+${\textsf{\color{redㅤㅤㅤㅤ⚠︎ Before you interact ⚠︎ }}$
 
 🌕 : Space have selective mutism. Space might ignore you on purpose. But that not because you bother them or anything.. It's because they don't know what to say and feeling nervous or anxious. [Space is diagnosed with Severe Anxiety]\
 🌖 : Jou will often switch names between Space or Jou sometimes.\
