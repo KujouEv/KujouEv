@@ -38,7 +38,8 @@ ${\textsf{\color{red}ㅤㅤㅤㅤ⚠︎ Before you interact ⚠︎ }}$
 🌖 : Jou will often switch names between Space or Jou sometimes.\
 🌗 : Always interact with catious! Especially if Space is alone.\
 🌘 : Do not cover Jou's pony! Jou get very trigger/uncomfortable when they can't see their pony pixel. [friends allowed to cover Space, not fully though.. Unless Finn.]\
-🌑 : C+H is welcome anytime unless their name doesn't say so!
+🌑 : C+H is welcome anytime unless their name doesn't say so!\
+🌒 : Jou might be NPD?? On spectrum definitely.. So sorry if they make you uncomfortable sometimes!
 
 <img width="1500" height="500" alt="Untitled130_20251124051214" src="https://github.com/user-attachments/assets/6bb3216f-dcab-4f29-a725-65a88ae550a9" />
 
