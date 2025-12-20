@@ -24,7 +24,7 @@ ${\textsf{\color{green}󠁪ㅤㅤㅤㅤㅤㅤ🎵BoomSpace💥 }}$
 
 > "The screams of my victims!"
 
-## ㅤㅤㅤ・┆✦ʚ♡ɞ✦ ┆・
+## <p align="center"> ・┆✦ʚ♡ɞ✦ ┆・ </p>
 
 ${\textsf{\color{pink}⠀⠀⠀⠀⠀⠀⠀⠀⠀୧ ‧₊˚ LINKS ⋅ ☆ }}$
 
