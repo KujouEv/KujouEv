@@ -2,7 +2,7 @@
 
 ><p align="center"> <sup>"Any type of music you like, Subspace?"</sup> </p>
 
-<p align="center"> ${\textsf{\color{red}ㅤ⠀⠀⚠︎ A Third Person Speaker! ⚠︎ }}$ </p>
+<p align="center"> ${\textsf{\color{red} ⚠︎ A Third Person Speaker! ⚠︎ }}$ </p>
 
 <p align="center"> ${\textsf{\color{green}󠁪 🎵BoomSpace💥 }}$ </p>
 
