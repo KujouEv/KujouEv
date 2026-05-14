@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bilbo&duration=3000&pause=200&color=AA0000&center=true&vCenter=true&width=435&lines=%22+My+Apologies%2C+%22+;%22+Hyperlaser+%22+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bilbo&duration=3000&pause=200&color=AA0000&center=true&vCenter=true&width=435&lines=%E2%80%9C+My+Apologies%2C+;Hyperlaser.+%E2%80%9D)](https://git.io/typing-svg)
