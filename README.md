@@ -1,7 +1,9 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bilbo&duration=3000&pause=200&color=AA0000&center=true&vCenter=true&width=435&lines=%E2%80%9C+My+Apologies%2C+;Hyperlaser.+%E2%80%9D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gaegu&size=25&pause=1000&color=FACFC6&background=DF808800&center=true&vCenter=true&width=435&lines=%E3%80%8CAh%2C+just+you+%E2%80%94+yes%2C+only+you%2C%E3%80%8D;%E3%80%8Ccan+radiate+such+a+gentle+warmth%E3%80%8D)](https://git.io/typing-svg)
 
-______________________
+<img width="540" height="245" alt="1000020958" src="https://github.com/user-attachments/assets/1aea06d8-ce06-4e4e-ad56-6dd72d038779" />
 
-<p align="center"> ${\textsf{\color{#970405}Jou}}$ / ${\textsf{\color{#970405}Space}}$ / ${\textsf{\color{#970405}Itrap}}$ </p>
-<p align="center"> ${\textsf{\color{#B30000}17}}$ ◡ ${\textsf{\color{#B30000}Them}}$ / ${\textsf{\color{#B30000}any}}$ </p>
-<p align="center"> ${\textsf{\color{#C50000}Very mentally unstable so always iwc}}$ </p>
+_________
+
+<p align="center"> ${\textsf{\color{#DFC7BE}Jou}}$ / ${\textsf{\color{#DFC7BE}Space}}$ / ${\textsf{\color{#DFC7BE}Itrap}}$ </p>
+<p align="center"> ${\textsf{\color{#DDB7B1}17}}$ ◡ ${\textsf{\color{#DDB7B1}Them}}$ / ${\textsf{\color{#DDB7B1}any}}$ </p>
+<p align="center"> ${\textsf{\color{#EAACAB}Third Person Speaker}}$ </p>
