@@ -5,7 +5,8 @@
 _________
 
 <p align="center"> ${\textsf{\color{#DFC7BE}Jou}}$ / ${\textsf{\color{#DFC7BE}Space}}$ / ${\textsf{\color{#DFC7BE}Itrap}}$ </p>
-<p align="center"> ${\textsf{\color{#DDB7B1}17}}$ ◡ ${\textsf{\color{#DDB7B1}Them}}$ / ${\textsf{\color{#DDB7B1}any}}$ </p>
+<p align="center"> ${\textsf{\color{#DDB7B1}17}}$ ◡ ${\textsf{\color{#DDB7B1}Them}}$ /
+${\textsf{\color{#DDB7B1}It}}$  / ${\textsf{\color{#DDB7B1}any}}$ </p>
 <p align="center"> ${\textsf{\color{#EAACAB}Third Person Speaker}}$ </p>
 
 <img width="640" height="183" alt="1000021007" src="https://github.com/user-attachments/assets/7f2259ef-57f0-4587-9fd8-4c9e46513a2c" />
