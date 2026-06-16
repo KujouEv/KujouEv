@@ -4,7 +4,7 @@
 
 _________
 
-<p align="center"> ${\textsf{\color{#DFC7BE}Jou}}$ / ${\textsf{\color{#DFC7BE}Space}}$ / ${\textsf{\color{#DFC7BE}Itrap}}$ </p>
+<p align="center"> ${\textsf{\color{#DFC7BE}Kujou}}$ / ${\textsf{\color{#DFC7BE}Celeste}}$ </p>
 <p align="center"> ${\textsf{\color{#DDB7B1}17}}$ ◡ ${\textsf{\color{#DDB7B1}Them}}$ /
 ${\textsf{\color{#DDB7B1}It}}$  / ${\textsf{\color{#DDB7B1}any}}$ </p>
 <p align="center"> ${\textsf{\color{#EAACAB}Third Person Speaker}}$ </p>
