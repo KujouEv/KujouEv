@@ -12,5 +12,4 @@ ${\textsf{\color{#DDB7B1}It}}$  / ${\textsf{\color{#DDB7B1}any}}$ </p>
 <img width="640" height="183" alt="1000021007" src="https://github.com/user-attachments/assets/7f2259ef-57f0-4587-9fd8-4c9e46513a2c" />
 
 
-<p align="center"> ${\textsf{\color{#F2E8EA}𝕯𝖗𝖎𝖛𝖊𝖓 𝖇𝖞 𝖊𝖓𝖛𝖎𝖔𝖚𝖘 𝖆𝖓𝖉 𝖏𝖊𝖆𝖑𝖔𝖚𝖘𝖞
-}}$ </p>
+<p align="center"> ${\textsf{\color{#F2E8EA}𝔈𝔪𝔟𝔬𝔡𝔦𝔪𝔢𝔫𝔱 𝔬𝔣 𝔓𝔢𝔯𝔣𝔢𝔠𝔱𝔦𝔬𝔫}}$ </p>
