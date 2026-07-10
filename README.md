@@ -13,3 +13,5 @@ ${\textsf{\color{#DDB7B1}It}}$  / ${\textsf{\color{#DDB7B1}any}}$ </p>
 
 
 <p align="center"> ${\textsf{\color{#F2E8EA}𝔈𝔪𝔟𝔬𝔡𝔦𝔪𝔢𝔫𝔱 𝔬𝔣 𝔓𝔢𝔯𝔣𝔢𝔠𝔱𝔦𝔬𝔫}}$ </p>
+<p align="center"> ${\textsf{\color{#E5D6DA}Suspected NPD and BPD}}$ </p>
+<p align="center"> ${\textsf{\color{#CCB6BB}Extremely Avoidant, ok?}}$ </p> 
